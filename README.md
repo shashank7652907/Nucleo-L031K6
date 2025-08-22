@@ -1,4 +1,3 @@
-Got it 👍 I’ll draft you a **professional GitHub README** that explains everything clearly and makes recruiters impressed. You can copy-paste and tweak board/wiring images later if you want.
 
 ---
 
